@@ -1,0 +1,12 @@
+- 😃 I’M ILIA CONT
+- 😎 Your host in here
+- 🌹 Yo, Hi Dear Human
+- 🙋‍ Hope U're Best Always 
+- 🤠 Welcome to my Universe
+- 🤓 I'M interested to seeing my Gist
+- 😇 & It'S my Pleasure to Seeing my concept
+- 🔰 I'M Currently Learning at Art Field, cause learning has no end in the world of art & we must always seek to keep our minds up to date in today's world to create different tastes and creativity for make best art.
+- 🙂 My opinion, the world of art is an unquestionable world for human beings who enjoy the progress of other people around them. This's pure art- 
+- 🤝 I'm interested in the field of art, whether I have collaboration with someone better than me or someone who has less skill, because creating a skill chain will leave the ability and change of thoughts & behavior in the mind of the viewer & And it combines tastes and ideas to discover fantastic content.
+- 😍 so at the End , Good luck mate , my friends or my Awesome Family 
+- 😘 Always be happy & creative
