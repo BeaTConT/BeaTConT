@@ -1,6 +1,6 @@
 - 😃 I’M ILIA CONT
 - 🌹 Yo, Hi Dear Human
-- 😎 Your host in here
+- 😎 I'M Your host in here
 - 🙋‍ Hope U're Best Always 
 - 🤠 Welcome to my Universe
 - 🤓 I'M interested to seeing my Gits
