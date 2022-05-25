@@ -1,3 +1,4 @@
+- 👋 ¡!..!¡
 - 😃 I’M ILIA CONT
 - 🌹 Yo, Hi Dear Human
 - 😎 I'M Your host in here
@@ -8,7 +9,7 @@
 - 🚆I'M here to explain a little bit about myself to feel & relate U with my art by Your creative mind.
 - 
 🧬 BioGraphy
-- 🤖 Persian Electronic Music Composer & Graphic Digital designer In art World Called me : ILIA ConT 
+- 🤖 Persian Electronic Music Composer & Graphic Digital designer In art World Called me : ILIA ConT From Iran & I borned at 1998
 - This title consists of two parts, ILIA & ConT.  Elijah is a Hebrew word, Syriac, meaning God, my God & I change this Word by my Taste to ILIA & ConT, taken from one of the strata of the royal artist of France & Count of St. Germain alchemist & artist of the eighteenth century . at The End Conte is Carbon Pencil.
 - 🎨 From the age of 7, I went to an art class & started physical arts by Chiaroscuro. It has been an honor for me that at the age of 9 and 11 I have honorably held a painting gallery in the Chiaroscuro Method by Conte pencil, Crayons & Oil Painting from the Ministry of Culture & Arts of Iran & After Those Galley, I published several methods of my work style in several Persian painting books. 
 - 👾 In the same years, I started working with digital software & making digital sketches & after some years Practicing with the development of my skills, I decided to build my dreams to started to work as a Ghost Vector Producer Team inside Vector websites to meet my financial needs.
@@ -18,4 +19,10 @@
 - 👆 It was only A part of my experience in Art Field 😇
 - 
 - 🎶 Music Hystory
-- 🤖 
+- 🤖 Mohammad Raisi Azizi Persian electronic music composer ,on Psytrance Project called: Ilia Cont
+- 🎼 Over time, I began playing instruments such as the setar , dulcimer(santur), daf and reed(ney) with his family members. His interest in playing music led him to continue his career in music and began to learn and compose music in the Iranian traditional style. he became acquainted with electronic music in 2008 and began learning and Producing it the following year.
+- 🎛 Since 2010, My first project style was Trance, along with other styles such as Trance ,G-House & another EDM style Musics .Inner Mine After 3 years in 2013, I tried Composing & Writing Melody With Pure Psytrance Feeling & I started to Create & Build collections & Release Like: INNER MINE , Suicide , ENERGY MIND & Some Single Track.
+- 🌌 So Now Welcome to My Universe .
+- 🧭 A unique Story is On Way.
+- © Hope to Enjoy by My Skill.
+- Soon ¡!..!¡
