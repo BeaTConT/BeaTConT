@@ -16,3 +16,6 @@
 🧪 In the same year, we collaborated with another artist from different countries on an ArtStation art cast to design a fantasy game. 6 designers, 2 programmers, 2 animators & a team manager.Each designer had to design 4 examples of the game to different mobile characters in similar fields.After competing in a design contest & three months of trying to come up with ideas & design & Claim All Digital Assets, we couldn't win the contest due to the misuse of others and the secret disclosure of digital assets created by the team, & I had to deactivate my account.😔
 - 🔰 I follow my old dream and in these 10 years of professional activity, I have created various art collections & single arts in different artistic ways, one of the newest of which is the Glamor area (A Part of J. R. R. Tolkien Products). Now on my Instagram I have written only a part of the single art & an example of the Hive of Algorithm collection with a deep concept that has been launched.
 - 👆 It was only A part of my experience in Art Field 😇
+- 
+- 🎶 Music Hystory
+- 🤖 
