@@ -8,7 +8,7 @@
 - 😇 & It'S my Pleasure to Seeing my concept
 - 🚆I'M here to explain a little bit about myself to feel & relate U with my art by Your creative mind.
 - 
-🧬 BioGraphy
+🧬 Art BioGraphy
 - 🤖 Persian Electronic Music Composer & Graphic Digital designer In art World Called me : ILIA ConT From Iran & I borned at 1998
 - This title consists of two parts, ILIA & ConT.  Elijah is a Hebrew word, Syriac, meaning God, my God & I change this Word by my Taste to ILIA & ConT, taken from one of the strata of the royal artist of France & Count of St. Germain alchemist & artist of the eighteenth century . at The End Conte is Carbon Pencil.
 - 🎨 From the age of 7, I went to an art class & started physical arts by Chiaroscuro. It has been an honor for me that at the age of 9 and 11 I have honorably held a painting gallery in the Chiaroscuro Method by Conte pencil, Crayons & Oil Painting from the Ministry of Culture & Arts of Iran & After Those Galley, I published several methods of my work style in several Persian painting books. 
